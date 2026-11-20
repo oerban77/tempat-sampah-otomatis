@@ -7,7 +7,7 @@ terkirim. Tutup menutup sendiri 3 detik setelah tangan pergi — tanganmu
 tidak pernah menyentuh tutup yang kotor.
 
 Video penjelasan (60 detik):
-link menyusul setelah upload
+https://youtube.com/shorts/52neGEDJ3aM
 
 ## Komponen
 
